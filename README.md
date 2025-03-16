@@ -1,16 +1,16 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/afa45646-dbfa-4982-ba81-3f705f226495)
 
-<!--
-**iiihatemyselllf/iiihatemyselllf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Пр, чучела, я Нэо/Нико (на выбор)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Я крч тупая синьорафажка так еще и пирокинезиса слушаю, ну в общем уебище то еще
+
+------------------------
+
+⋆ .𝘼𝙗𝙤𝙪𝙩 𝙢𝙚: INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности
+
+⋆ . 𝙁𝙖𝙣𝙙𝙤𝙢𝙨: Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon
+
+⋆ . 𝘿𝙉𝙄 ❗️❗️❗️ толерашки ; аванцио ; фаны онли гет пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы
+
+⋆ . 𝙈𝙮 𝙛𝙖𝙫 𝙢𝙪𝙨𝙞𝙘 𝙖𝙧𝙩𝙞𝙨𝙩𝙨: Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез
