@@ -10,6 +10,10 @@
 
 ---------------
 
+
+![image](https://github.com/user-attachments/assets/800fcee4-519a-420b-896c-dd0ca7716015)
+
+
 ⋆ .𝘼𝙗𝙤𝙪𝙩 𝙢𝙚: INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности
 
 ⋆ . 𝙁𝙖𝙣𝙙𝙤𝙢𝙨: Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon
