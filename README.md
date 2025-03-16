@@ -37,7 +37,7 @@
 
 
 Хай!!!!!!!!!!!!!!!!1 ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85)
- ![image](https://github.com/user-attachments/assets/d31d9250-e7ee-492e-98c1-393e6ae80960)![image](https://github.com/user-attachments/assets/3b95bdd8-a9e3-4587-abba-d177d8f51e6f)![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)
+ ![image](https://github.com/user-attachments/assets/d31d9250-e7ee-492e-98c1-393e6ae80960)![image](https://github.com/user-attachments/assets/3b95bdd8-a9e3-4587-abba-d177d8f51e6f)![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv)
 
 
 
