@@ -37,19 +37,22 @@
 
 
 Хай!!!!!!!!!!!!!!!!1 ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85)
- ![image](https://github.com/user-attachments/assets/d31d9250-e7ee-492e-98c1-393e6ae80960)
+ ![image](https://github.com/user-attachments/assets/d31d9250-e7ee-492e-98c1-393e6ae80960)![image](https://github.com/user-attachments/assets/3b95bdd8-a9e3-4587-abba-d177d8f51e6f)![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)
 
 
-Я крч тупая синьорафажка ![00pgwa](https://github.com/user-attachments/assets/aec9d889-bb26-40d6-a946-990a2c47a398)
- так еще и пирокинезиса слушаю ![image](https://github.com/user-attachments/assets/c46372ee-86dd-408c-a9a0-ee39f850ce20)
-, ну в общем уебище то еще ☠
 
 
+Я крч тупая синьорафажка ![00pgwa](https://github.com/user-attachments/assets/fdb318fb-d2cf-4d2a-8ffa-569d1e4f7f91) так еще и пирокинезиса слушаю ![image](https://github.com/user-attachments/assets/8d1043cc-6088-450a-86d5-844836e17854), ну в общем уебище то еще ☠
+
+
+МОЙ АККАУНТ ЭТО НЕ ПИРАТСКИЙ САЙТ С ВИРУСАМИ ИДИТЕ НАХ3L4./4/4.3.
 
 ---------------
 
 
 ![image](https://github.com/user-attachments/assets/800fcee4-519a-420b-896c-dd0ca7716015)
+
+![](https://64.media.tumblr.com/49980f71b3e2817c766efe85c27e074d/3c5627d4c46ff0c7-84/s100x200/bc7e10b8f3a5fb2eafc4cccbd6503ead6155fd32.gifv)
 
 ![image](https://github.com/user-attachments/assets/9b5da588-75a6-48db-96c4-2a7cf73c9a76) ![image](https://github.com/user-attachments/assets/e9b53627-3718-477f-beb4-ff01957b2640)
 ![image](https://github.com/user-attachments/assets/052cd570-87f1-4027-88ea-851b6f200d93) ![image](https://github.com/user-attachments/assets/177054f8-abcf-4499-8d8e-d2bc9d3069e8)
@@ -86,6 +89,12 @@
 ![image](https://github.com/user-attachments/assets/72170f9d-7eb1-4e2e-b923-34a7343d2f5c)
 ![image](https://github.com/user-attachments/assets/c6712f61-bc1b-4278-8b2b-06630abd7d70)
 ![image](https://github.com/user-attachments/assets/ad79524f-6856-416d-995b-e1fc1157793d)
-![image](https://github.com/user-attachments/assets/43879361-f821-42a8-886c-260f9d5b76b0)
 
+"Н᧐, κᥲκ ᴛу᧘ьᥰᥲ ᥴ᧐ ʍн᧐ᥔ ʍ᧐я mea maxima culpa" ![image](https://github.com/user-attachments/assets/6e2c7427-bf36-40c4-97a8-6acb5fca97aa)
+![image](https://github.com/user-attachments/assets/9768796d-cdf9-469f-ac13-fd29235c6564)
+![image](https://github.com/user-attachments/assets/1c404af0-c8f1-48a6-a6a6-4589f14f5ef2)
 
+"Я ᥴᥱδя κ᧐ρ᧐ную ʙ ᴛᥱρн᧐ʙыᥔ ʙᥱнᥱц ϶ʙ᧐᧘юцᥙᥙ" ![image](https://github.com/user-attachments/assets/7524d78f-663c-4997-a5d6-924c6b76dd3a)
+![image](https://github.com/user-attachments/assets/6e26b74a-d462-48b8-b1b1-b28e3acb04c1)
+
+"В᧐ᥴᥰρᥙнᥙʍᥲᥔᴛᥱ δᥱɜуʍᥙᥱ нᥱ ʙᥴᥱρьёɜ" ![image](https://github.com/user-attachments/assets/4f4c9f8c-e5b1-4c38-a235-7cd3d5d7a18a)
