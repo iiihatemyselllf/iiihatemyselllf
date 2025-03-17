@@ -1,8 +1,5 @@
 ![image](https://github.com/user-attachments/assets/afa45646-dbfa-4982-ba81-3f705f226495) 
 
-![](https://64.media.tumblr.com/d95b181aa72278929bd67bbd4144635e/7f4cc04feabd9a14-10/s100x200/9912db17708573bd476631ba56c000bf01982880.gifv)![](https://64.media.tumblr.com/279be17747f9b6c9d817a4c9d7f3868a/7f4cc04feabd9a14-1c/s100x200/538d01f1a081547e8052df0143be66d9e048959c.gifv)![](https://64.media.tumblr.com/c30caf64e4fc95c413199dda9b42c4eb/7f4cc04feabd9a14-40/s100x200/6b2c0494a3ebd24fdda45546b814a4f9a4cdc7e1.gifv)
-
-
 
 
 ![image](https://github.com/user-attachments/assets/52784241-d5d0-403e-8867-fdbcb9cca6c2)
