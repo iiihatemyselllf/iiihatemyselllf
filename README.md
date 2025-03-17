@@ -36,10 +36,10 @@
 ---------------
 
 
-![](https://64.media.tumblr.com/7bc919f3871688f1531f672401578432/c9f852cbea274fe6-66/s75x75_c1/e1f55619c73eeac09078e19bc5a947baa23d82aa.gifv) Хай!!!!!!!!!!!!!!!!1 ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85)![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv)![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)![](https://64.media.tumblr.com/aa6df5045151b4c8314fcc2318cb5ed1/461cc38b10614ee7-62/s75x75_c1/b75646130aae60c29337ed512da92919aecb1c78.gifv)
+![](https://64.media.tumblr.com/7bc919f3871688f1531f672401578432/c9f852cbea274fe6-66/s75x75_c1/e1f55619c73eeac09078e19bc5a947baa23d82aa.gifv) Хай!!!!!!!!!!!!!!!!1 ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85)![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv)![](https://64.media.tumblr.com/aa6df5045151b4c8314fcc2318cb5ed1/461cc38b10614ee7-62/s75x75_c1/b75646130aae60c29337ed512da92919aecb1c78.gifv)
 
 
-![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
+
 
 ![](https://64.media.tumblr.com/697b01b8d47a42477c97274a4fdfa568/c9f852cbea274fe6-53/s75x75_c1/6834c59879f2d284ad7170302a3221ad30989a3b.gifv) Я крч тупая синьорафажка ![00pgwa](https://github.com/user-attachments/assets/fdb318fb-d2cf-4d2a-8ffa-569d1e4f7f91) так еще и пирокинезиса слушаю ![image](https://github.com/user-attachments/assets/8d1043cc-6088-450a-86d5-844836e17854), ну в общем уебище то еще ☠
 
@@ -58,16 +58,17 @@
  ![image](https://github.com/user-attachments/assets/dbf84a23-4fff-4790-b30c-318997e47a71) ![image](https://github.com/user-attachments/assets/316dfb1e-5ef7-4340-8b6e-c2610c1d0f87)![](https://64.media.tumblr.com/0fcf1aef72bef289443e8adf8fa748f3/a69bad83ef95edc9-f8/s100x200/5afd0ad3248d681e56940251317997d8e7613839.gifv)![](https://64.media.tumblr.com/fe0361e58e4762065c9059c7b374ea8e/121bca8437e78fff-b3/s75x75_c1/eb1870afce51cad69bd2bd76edd3441586aabda2.gifv)![](https://64.media.tumblr.com/06cd9fadf1fbb6368d1593f4432c22c5/f461aa694d233a89-13/s100x200/14458f8b5b28affe6773436ec4019169a87290c0.gifv)
 
 
-⋆ . 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚: INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://64.media.tumblr.com/abb10af1df427b2cc8a5914829b0a1c0/00fb8ddee1cc3f2b-a3/s75x75_c1/e83f2d16da79aab0280539d3a6cd135399c3b6f9.gifv)![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)![](https://64.media.tumblr.com/d8b23371d377ac1fa0a6029f68e94342/c985327fcb04e268-2b/s75x75_c1/a86c53d0c93f9079d9fc15b31b0be92de23a9c7a.gifv)![](https://64.media.tumblr.com/74581d48f7377e6b2d89721c30af4b95/73db4279d9edc50f-8c/s100x200/91c3d6a7655988e417b9793fd54f478724e1441c.gifv)
+⋆ . 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚: INTJ ; холерик-меланхолик ; тревожно-избегающий тип привязанности ![](https://64.media.tumblr.com/abb10af1df427b2cc8a5914829b0a1c0/00fb8ddee1cc3f2b-a3/s75x75_c1/e83f2d16da79aab0280539d3a6cd135399c3b6f9.gifv)![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)![](https://64.media.tumblr.com/d8b23371d377ac1fa0a6029f68e94342/c985327fcb04e268-2b/s75x75_c1/a86c53d0c93f9079d9fc15b31b0be92de23a9c7a.gifv)![](https://64.media.tumblr.com/74581d48f7377e6b2d89721c30af4b95/73db4279d9edc50f-8c/s100x200/91c3d6a7655988e417b9793fd54f478724e1441c.gifv)![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)
 
 ⋆ . 𝙁𝙖𝙣𝙙𝙤𝙢𝙨: Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom
 
 ⋆ . 𝘿𝙉𝙄 ❗️❗️❗️ толерашки ; аванцио ; фаны онли гет пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы ; противники черного юмора ; неженки ; русофобы/укрофобы ; РОЗА 💀💀💀 ![](https://64.media.tumblr.com/9d1982bcc81d10d7c206cd473b1fd5ce/dbd8b1e992a56a49-31/s250x400/6a1dc3ebbdcd1dd0297e0d4a0301691643c69ecb.gifv)![](https://64.media.tumblr.com/09c42206ccbbae8f8488fc87310f0681/c9955045e2d3bfe1-1b/s100x200/5f76629a5711b2e94b6f0945ec66b95c4267c74c.gifv)
 
-⋆ . 𝙈𝙮 𝙛𝙖𝙫 𝙢𝙪𝙨𝙞𝙘 𝙖𝙧𝙩𝙞𝙨𝙩𝙨: Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск
+⋆ . 𝙈𝙮 𝙛𝙖𝙫 𝙢𝙪𝙨𝙞𝙘 𝙖𝙧𝙩𝙞𝙨𝙩𝙨: Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск ![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)
 
 <img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/d6f38e3e-1471-491d-a341-f50870d9c0ef" /><img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/9b2b4791-31bf-45ca-b6a2-7adf4f1eb4a2" />
-<img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/a68ecd97-ee9e-4f18-b556-3690d14a52e0" /> ![](https://64.media.tumblr.com/4b39fda9becfbe63f759eda7dfb47034/207d3c74e3aa809e-57/s100x200/6b5d96ab4cbb52fe79d192a79f71b59421591bd8.gifv)![](https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/6f8b516a473c93b3-7f/s250x400/d57f9b29e36f129d673cd340b792c8041033ab3f.gifv)
+<img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/a68ecd97-ee9e-4f18-b556-3690d14a52e0" /> ![](https://64.media.tumblr.com/4b39fda9becfbe63f759eda7dfb47034/207d3c74e3aa809e-57/s100x200/6b5d96ab4cbb52fe79d192a79f71b59421591bd8.gifv)![](https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/6f8b516a473c93b3-7f/s250x400/d57f9b29e36f129d673cd340b792c8041033ab3f.gifv)![image](https://github.com/user-attachments/assets/2c1d5b27-29fb-4dfe-a007-66fff5c97728)
+
 
 
 ---------------
@@ -79,7 +80,7 @@
 ![image](https://github.com/user-attachments/assets/a27533d5-9be9-4ddc-b327-23c32e972087)![](https://64.media.tumblr.com/c4de26c9032db5a4c085915069b440b8/e018519d595eb0b7-ae/s75x75_c1/534a4ea554fdf8f2661759fec6d86b6f2af334e9.gifv)
 
 
-
+![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
 
 
 ---------------
