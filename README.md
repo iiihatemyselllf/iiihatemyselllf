@@ -30,7 +30,8 @@
 
 
 
-юне голову е...] баба истеричка 
+юне голову е...] баба истеричка
+
 
 ---------------
 
@@ -38,7 +39,7 @@
 ![](https://64.media.tumblr.com/7bc919f3871688f1531f672401578432/c9f852cbea274fe6-66/s75x75_c1/e1f55619c73eeac09078e19bc5a947baa23d82aa.gifv) Хай!!!!!!!!!!!!!!!!1 ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85)![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv)![](https://64.media.tumblr.com/22f29b8b5267c490b5c7b9f007c6a356/8827926dd56fd31f-a4/s75x75_c1/5b99f6f12464dec13a6441194d56301d9e1fb529.gifv)![](https://64.media.tumblr.com/aa6df5045151b4c8314fcc2318cb5ed1/461cc38b10614ee7-62/s75x75_c1/b75646130aae60c29337ed512da92919aecb1c78.gifv)
 
 
-
+![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
 
 ![](https://64.media.tumblr.com/697b01b8d47a42477c97274a4fdfa568/c9f852cbea274fe6-53/s75x75_c1/6834c59879f2d284ad7170302a3221ad30989a3b.gifv) Я крч тупая синьорафажка ![00pgwa](https://github.com/user-attachments/assets/fdb318fb-d2cf-4d2a-8ffa-569d1e4f7f91) так еще и пирокинезиса слушаю ![image](https://github.com/user-attachments/assets/8d1043cc-6088-450a-86d5-844836e17854), ну в общем уебище то еще ☠
 
@@ -66,7 +67,7 @@
 ⋆ . 𝙈𝙮 𝙛𝙖𝙫 𝙢𝙪𝙨𝙞𝙘 𝙖𝙧𝙩𝙞𝙨𝙩𝙨: Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск
 
 <img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/d6f38e3e-1471-491d-a341-f50870d9c0ef" /><img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/9b2b4791-31bf-45ca-b6a2-7adf4f1eb4a2" />
-<img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/a68ecd97-ee9e-4f18-b556-3690d14a52e0" />
+<img width="175" alt="image_2025-03-16_23-27-41" src="https://github.com/user-attachments/assets/a68ecd97-ee9e-4f18-b556-3690d14a52e0" /> ![](https://64.media.tumblr.com/4b39fda9becfbe63f759eda7dfb47034/207d3c74e3aa809e-57/s100x200/6b5d96ab4cbb52fe79d192a79f71b59421591bd8.gifv)![](https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/6f8b516a473c93b3-7f/s250x400/d57f9b29e36f129d673cd340b792c8041033ab3f.gifv)
 
 
 ---------------
