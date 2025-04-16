@@ -62,7 +62,7 @@
 
 ⋆ . 𝙁𝙖𝙣𝙙𝙤𝙢𝙨: Genshin Impact ; Honkai: Star Rail ; Path to Nowhere ; Reverse: 1999 ; Evangelion ; Black Lagoon ; Cookie Run: Kingdom
 
-⋆ . 𝘿𝙉𝙄 ❗️❗️❗️ толерашки ; аванцио ; фаны онли гет пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы ; противники черного юмора ; 99% фд вувы ; неженки ; русофобы/укрофобы ; РОЗА 💀💀💀 ![](https://64.media.tumblr.com/9d1982bcc81d10d7c206cd473b1fd5ce/dbd8b1e992a56a49-31/s250x400/6a1dc3ebbdcd1dd0297e0d4a0301691643c69ecb.gifv)![](https://64.media.tumblr.com/09c42206ccbbae8f8488fc87310f0681/c9955045e2d3bfe1-1b/s100x200/5f76629a5711b2e94b6f0945ec66b95c4267c74c.gifv)
+⋆ . 𝘿𝙉𝙄 ❗️❗️❗️ толерашки ; аванцио ; фаны онли гет пейров ; гомофобы ; расизм ; вайтвошеры и блэквошеры ; мизогинисты ; антисы ; противники черного юмора ; 99% фд вувы ; неженки ; русофобы/укрофобы ![](https://64.media.tumblr.com/9d1982bcc81d10d7c206cd473b1fd5ce/dbd8b1e992a56a49-31/s250x400/6a1dc3ebbdcd1dd0297e0d4a0301691643c69ecb.gifv)![](https://64.media.tumblr.com/09c42206ccbbae8f8488fc87310f0681/c9955045e2d3bfe1-1b/s100x200/5f76629a5711b2e94b6f0945ec66b95c4267c74c.gifv)
 
 ⋆ . 𝙈𝙮 𝙛𝙖𝙫 𝙢𝙪𝙨𝙞𝙘 𝙖𝙧𝙩𝙞𝙨𝙩𝙨: Pyrokinesis ; ЩЕНКИ ; Он Юн ; Дайте Танк (!) ; MAMA RUSSIA ; ПОЛМАТЕРИ ; Электрофорез ; DK ; Комсомольск ![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)![](https://64.media.tumblr.com/d3f4c31a28882f84829074ef01c3124e/e9b9124c7f697591-b6/s75x75_c1/ee06dd116486077e66d395697979ccee49d9ab12.gifv)
 
@@ -74,7 +74,7 @@
 ---------------
 
 ![image](https://github.com/user-attachments/assets/30e714c8-a962-4de3-b88b-8fa2c4d31bf6)![image](https://64.media.tumblr.com/b5a3d8e81a2fa4b29a66a5fec094bee9/767f31d9cc30f8f2-9c/s75x75_c1/4f7627d2001eb4c3d945566d6e67aa86f0dcc1fa.gifv)
-@rose-rebzyyx <--- мая ![image](https://github.com/user-attachments/assets/5d06ad66-e155-4a14-ade7-bb0684ecda84)![image](https://github.com/user-attachments/assets/fc6f7b94-e75f-445c-aa10-9355ae4d1da7)
+Синьора моя гф риал нот фейк ![image](https://github.com/user-attachments/assets/fc6f7b94-e75f-445c-aa10-9355ae4d1da7)
 ![image](https://github.com/user-attachments/assets/77e213ed-c5de-4271-8756-b1ed79c4c738)
 ![image](https://github.com/user-attachments/assets/bd797ea2-83c6-4dac-8f78-d8dd15c82ef2)
 ![image](https://github.com/user-attachments/assets/a27533d5-9be9-4ddc-b327-23c32e972087)![](https://64.media.tumblr.com/c4de26c9032db5a4c085915069b440b8/e018519d595eb0b7-ae/s75x75_c1/534a4ea554fdf8f2661759fec6d86b6f2af334e9.gifv)![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
