@@ -119,4 +119,4 @@
 ㅤ
 
 
-![](https://static.wikia.nocookie.net/omori/images/f/f7/Basil_Hurt_%28Background%29.gif/revision/latest?cb=20230731231241&path-prefix=ru) ![](https://static.wikia.nocookie.net/omori/images/c/c1/Basil_Afraid_%28Background%29.gif/revision/latest?cb=20230731231240&path-prefix=ru)ㅤㅤ<----ㅤㅤIt`s me btw >_<
+![](https://static.wikia.nocookie.net/omori/images/f/f7/Basil_Hurt_%28Background%29.gif/revision/latest?cb=20230731231241&path-prefix=ru) ![](https://static.wikia.nocookie.net/omori/images/c/c1/Basil_Afraid_%28Background%29.gif/revision/latest?cb=20230731231240&path-prefix=ru)ㅤㅤ<----ㅤㅤThis is me btw >_<
