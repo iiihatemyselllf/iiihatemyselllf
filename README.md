@@ -113,10 +113,11 @@
 
 ![](https://64.media.tumblr.com/7f73afde1b7796fdbfb390fedcc559ca/6cc87f5237bd2ddc-41/s400x600/635054202ef39301f85406487bed0cc2c5814656.gifv)![](https://64.media.tumblr.com/37cdf56d884a2efd8338f2c02a81cac6/62fa2fa6a73a649d-de/s100x200/1125f68d775ec796b476f3923a783b157ce86420.gifv)![image](https://github.com/user-attachments/assets/03483be2-5f28-4374-a5c2-16edb3255bb5)![](https://64.media.tumblr.com/9ebeea7c0e208b959d15c6b324ed88f4/79d8b316934d24c3-68/s100x200/f05976f68142649baa15ab3689c08c32f5756c37.gifv)![image](https://github.com/user-attachments/assets/cab5e482-3046-4a2a-a9da-54be1020485e)
 
-
 ㅤ
 ㅤ
 ㅤ
 
 
-![](https://static.wikia.nocookie.net/omori/images/f/f7/Basil_Hurt_%28Background%29.gif/revision/latest?cb=20230731231241&path-prefix=ru) ![](https://static.wikia.nocookie.net/omori/images/c/c1/Basil_Afraid_%28Background%29.gif/revision/latest?cb=20230731231240&path-prefix=ru)ㅤㅤ<----ㅤㅤThis is me btw >_<
+![](https://static.wikia.nocookie.net/omori/images/f/f7/Basil_Hurt_%28Background%29.gif/revision/latest?cb=20230731231241&path-prefix=ru) ![](https://static.wikia.nocookie.net/omori/images/c/c1/Basil_Afraid_%28Background%29.gif/revision/latest?cb=20230731231240&path-prefix=ru)ㅤㅤ<----ㅤㅤThis is me btw >_< 
+
+![](https://64.media.tumblr.com/19beff4362f465a5db6d5935a97311e8/1b6e00138480f5d5-c4/s250x400/561f6d21af95957838f11e044d220ebe141c35e6.gifv)![](https://64.media.tumblr.com/4c534cb65771772774232a64ecfa7aeb/62975f006f814129-d4/s250x400/21474d484ba9c4870d2d8147d4c056249119355c.gifv)![](https://64.media.tumblr.com/4c534cb65771772774232a64ecfa7aeb/62975f006f814129-d4/s250x400/21474d484ba9c4870d2d8147d4c056249119355c.gifv)![](https://64.media.tumblr.com/4c534cb65771772774232a64ecfa7aeb/62975f006f814129-d4/s250x400/21474d484ba9c4870d2d8147d4c056249119355c.gifv)![](https://64.media.tumblr.com/4c534cb65771772774232a64ecfa7aeb/62975f006f814129-d4/s250x400/21474d484ba9c4870d2d8147d4c056249119355c.gifv)![](https://64.media.tumblr.com/19beff4362f465a5db6d5935a97311e8/1b6e00138480f5d5-c4/s250x400/561f6d21af95957838f11e044d220ebe141c35e6.gifv)
